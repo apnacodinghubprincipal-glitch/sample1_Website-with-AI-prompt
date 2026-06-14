@@ -1,2 +1,2 @@
 # sample1_Website-with-AI-prompt
-websit for abss in 2026
+website for abss in 2026
